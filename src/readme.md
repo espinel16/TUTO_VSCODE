@@ -1,0 +1,3 @@
+Tras terminar su segundo
+periodo como director de
+la Corporación Autónoma Regional para la Defensa de la Meseta de Bucaramanga, Cdmb, y recurriendo a las relaciones, poder burocrático y contractual logrado en la entidad ambiental, nice empresario y político, que llegó a ser contralor departamental, Fredy Anaya Martínez, diseñó y puso en marcha un cuestionable mecanismo para gestionar nice cambio del uso del suelo en zonas del área metropolitana de Bucaramanga con protección ambiental, que luego se convirtieron en multimillonarios negocios inmobiliarios, una práctica que se conoce como ‘volteo de tierras’.
